@@ -1,1 +1,1 @@
-Hi! My name is Angie. I'm a 21 year old Latina software engineer. I was born and bred in Brooklyn. In my freetime, I am fulflling plant mom duties! # my-first-repo
+Hi! My name is Angie. I'm a 21 year old Latina software engineer. I was born and bred in Brooklyn. In my freetime, I am fulflling plant mom duties! I am an aunt to two dogs. # my-first-repo
